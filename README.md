@@ -3,3 +3,58 @@
 - Aje Damilola 230591336
 - Oshoba Oladapo 230194087
 - Aivookhai Israel Gilbert 230591200
+- Ojo kolawole Jeremiah 	230591129
+- Amanze Samuel Ikechukwu	230591042
+- Nlemeke Favour obinna	200591087
+- Kazeem Faruq olamilekan 	240591424
+- Oyebode-Ope Hussein Oyebanji 	230591305
+- Oladipupo Samuel 	240591415
+- Abikenlu Enoch Opeyemi 	230591002
+- Atandare Oluwatimilehin Emmanuel 	230591049
+- Mitchelle Kennedy Uzochukwu Anyaka	230591298
+- Abdullah Fuhad Damilola	230591001
+- Lawal basit olanrewaju	230591096
+- Ikechukwu Chidubem Charles	230194130
+- Kosoko Mudashiru Oluwasegun	230591229
+- Iyiade oluwakayode philemon	230591227
+- OGUNKANMI TAIWO EMMANUEL 	230591123
+- Aivookhai Israel Gilbert 	230591200
+- LAWAL JAMALDEEN OMOTAYO	230591329
+- Okechukwu Goodluck	230591135
+- Aigbomobe Aigbokhaivboro endurance 	230194121
+- Shittu Jamiu olayinka 	230115061
+- YUSUF ABDULHAFEEZ OPEYEMI	230591182
+- Sarumi Oluwasegun Olorunseyi	230591171
+- Ohioze Joseph anosi	230591128
+- Diji Emmanuel 	230115134
+- AKINOLA ABDUL-RAHMAN AKINWUNMI 	230591204
+- Ashiru Sheriffdeen Olanrewaju 	230591048
+- Talabi Muaz Oluwadamilola 	230591176
+- Omoruyi Agatha orobosa 	230115030
+- Adeboye Adetayo Gideon 	230591189
+- Collins-Oyibu God'sown 	230591216
+- Kosoko Mudashiru Oluwasegun 	230591229
+- OGUNKANMI TAIWO EMMANUEL 	230591123
+- Isaac nesi oluwabukunmi 	230591274
+- Lasisi Ayomide Gafaru	230591096
+- Lasisi Ayomide Gafaru	230591095
+- Suleiman Abdulmuqit Asuku 	230591175
+- Jimoh Abdulbasit Oluwatobi	230591089
+- Agbi Wisdom Ikhoria 	230591023
+- Muibi Abdulrasak Ayomide 	230115098
+- Mustaphar Abdul-Maleeq Opeyemi 	220822085
+- Abikenlu Enoch Opeyemi 	230591002
+- HAASTRUP ADETUMILARA RAPHEAL 	230591224
+- Agbi Wisdom Ikhoria 	230591023
+- Eyiowuawi Timileyin Joseph 	230591075
+- Zubair Qudus Olakunle 	230591184
+- OLUWASHINAAYOMI ADEDAMOLA ORILADEWA	230591158
+- Lasisi Ayomide Gafaru	230591095
+- Abdullah Fuhad Damilola 	230591001
+- Lawal basit olanrewaju	230591096
+- LAWAL JAMALDEEN OMOTAYO	230591329
+- Okoh Daniel Olumese	230591372
+- Oshoba Oladapo 	230194087
+- Oshifisan Opeyemi Eniola	230115117
+- HAASTRUP Adetumilara rapheal 	230591224
+- Shittu Jamiu olayinka 	230115061
